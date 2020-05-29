@@ -1,2 +1,0 @@
-# TippmixHack
-ez money
